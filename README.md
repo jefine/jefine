@@ -1,2 +1,2 @@
 ### Hi there 👋
-#### Why not to go?!
+#### Why not to go?
