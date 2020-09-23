@@ -2,4 +2,4 @@
 
 ### Let's go！
 
-### just do it!
+### Just do it!
